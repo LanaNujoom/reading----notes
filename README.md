@@ -7,3 +7,6 @@ People with a growth mindset believe that skills, knowledge and creativity can a
 - Focus on the result you want to achieve , whatever others tell you or try to frustrate you.
 - Remember there are always obstacles, but you can overcome them.
 - Always make effort to learn but do not forget to have fun too.
+There is a quote which I really like for Roy Bennett which is :
+>“Instead of worrying about what you cannot control, shift your energy to what you can create.”
+– Roy T. Bennett
